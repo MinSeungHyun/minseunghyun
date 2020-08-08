@@ -14,5 +14,5 @@
 - 🚀 **새로운 것**을 배우고 사용해보는 것을 좋아해요.
 
 **🤗 같이 이야기도 하고 프로젝트도 해요!**  
-Facebook : fb.com/minseunghyun03  
+Facebook : [fb.com/minseunghyun03](https://facebook.com/minseunghyun03)  
 Email : contact@seunghyun.in
